@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Olamilekan898
 - 👀 I’m interested in making friends,sport,and playing games.
-- 🌱 I’m studied business administration
+- 🌱 I studied business administration
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me [...](https://github.com/Olamilekan898)
 - im from ibadan,oyo state Nigeria.
